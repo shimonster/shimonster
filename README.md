@@ -1,10 +1,4 @@
-### Critcal Info:
 
-Pronouns: He/Him
-
-Adjectives: Dominant, Muscular, Humble
-
-License: https://github.com/shimonster/shimonster/blob/main/LICENSE
 
 
 
